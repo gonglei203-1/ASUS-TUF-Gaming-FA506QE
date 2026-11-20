@@ -1,0 +1,2 @@
+# ASUS-TUF-Gaming-FA506QE
+ASUS TUF Gaming A15 FA506QE  Mac
